@@ -1,2 +1,1 @@
-Mess with me and your dead. I'm a EXPERIENCED hacker, I was born from 2006, I may be a teenager. But I know how to hack. I will be opening my files to show you what I do. Just don't{v.end
-Mess with the files. Or I'll install ransomware.{v.end} Wanna know how? Every time someone views the files it gives me your IP Address {v.end} then I save it to google docs when I see your IP Address {v.end} i'll tell you more later, dumby{v.end
+uy
